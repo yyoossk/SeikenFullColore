@@ -1,1 +1,1 @@
-# SeikenFullColore
+# 聖剣伝説フルカラーパッチ
